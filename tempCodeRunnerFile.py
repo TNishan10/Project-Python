@@ -1,0 +1,1 @@
+We would like to inform you that a 13% VAT will be added to the final purchase amount.
